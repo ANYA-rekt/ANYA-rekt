@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ANYA-rekt.
 - 👀 I’m interested in blockchain technology aimed towards airdrop hunting.
-- 🌱 I’m unexperienced but working on it.
+- 🌱 I’m unexperienced but trying my best.
 - 💞️ I am but a goldfish swimming amoung whales.
 
 
